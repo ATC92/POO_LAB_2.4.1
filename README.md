@@ -1,0 +1,2 @@
+# POO_LAB_2.4.1
+POO_LAB_2.4.1 - ChatGPT
